@@ -5,7 +5,11 @@ The Snowshoe is a rare breed of domestic cat originating in the United States of
 
 Origin: United States, Philadelphia
 
+# Characteristics
 
+**Anatomy**
+
+The ear size ranges from medium to medium-large with slightly rounded tips. The head may be triangular, however can be an "applehead" shape with a traditional cat look. The short-haired coat consists of solid and white patterns. Points (ears, tail, face-mask and sometimes legs) are solid black-based colours. White patterns vary, typically falling along the face, chest, stomach, and paws. The body is an even colouration, subtle shading to point colour on back, shoulders and hips; toning to a lighter shade near chest and stomach. Paw pads may be white, point colour, flesh tone, or mottled. Their colour will darken with age, even to the point of turning a chocolate brown shade. The eyes are always blue. The tail is medium-sized. Snowshoe cats come in blue, lilac, lynx, fawn, chocolate, and seal points. The Snowshoe is a medium-large cat and its body longer than other cat breeds, with many males reaching 6 kg (14 lbs) or more.
 
 **Personality**
 
