@@ -1,7 +1,5 @@
-# Cats
-The cat, commonly referred to as the domestic cat or house cat, is the only domesticated species in the family Felidae. Recent advances in archaeology and genetics have shown that the domestication of the cat occurred in the Near East around 7500 BC
+# Snowshoe Cat
+The Snowshoe is a rare breed of domestic cat originating in the United States of America in the 1960s. The Snowshoe is a short-haired bicolour colourpoint breed. Snowshoes were first produced in Philadelphia when a Siamese breeder's cat gave birth to three kittens with white feet. 
 
-Lifespan: 12 – 18 years
+![Snowshoe Cat] (https://www.rover.com/blog/wp-content/uploads/iStock-1062782600-min-960x540.jpg)
 
-**Breeds**
-https://i.pinimg.com/736x/44/e3/d8/44e3d815c0a88acf8db991802c030840.jpg
