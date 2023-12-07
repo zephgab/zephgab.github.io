@@ -5,6 +5,11 @@ The Snowshoe is a rare breed of domestic cat originating in the United States of
 
 Origin: United States, Philadelphia
 
+# History
+
+In the 1960s, a cat owned by Siamese cat breeder Dorothy Hinds-Daugherty produced a litter of Siamese kittens in Philadelphia, Pennsylvania. Three of the kittens had unique markings, consisting of white points and feet.Intrigued by their looks, she began working to breed cats like them, using seal point Siamese with bicolour American Shorthairs.The offspring of those cats lacked the Siamese points, but by breeding the offspring to Siamese cats, the desired look was accomplished. Hinds-Daugherty named the breed "Snowshoe" because of their white feet. Hinds-Daugherty promoted the Snowshoe at local cats shows, though they were not recognised at the time. Hinds-Daughtery eventually abandoned the Snowshoe breeding program, and it was taken up by Vikki Olander.
+
+
 # Characteristics
 
 **Anatomy**
@@ -15,3 +20,7 @@ The ear size ranges from medium to medium-large with slightly rounded tips. The 
 
 Snowshoes are generally affectionate, sweet-tempered, and mellow. They enjoy the company of humans and being given attention, and are compatible with children and other pets. Snowshoes are very social and docile, and show great devotion and love towards their owners. Consequently, the cats of this breed dislike being left alone for long periods of time and are able to cope with working hours better if they have another cat companion. Snowshoes may express themselves and their complaints vocally, though their meows are not as loud as the Siamese. It is not unusual for a snowshoe to look concerned, they generally have a worried or concerned expression on their face for the majority of the time. The cats are also noted as being intelligent; they can learn to open various types of doors, and can be taught tricks, especially fetch. Snowshoes also enjoy water, particularly running water, and may on occasion swim. Though very active, they are not restless or easily agitated, and they have a fondness for perching in high places.
 
+
+**Snowshoe cats cost between $600 - $1200.**
+
+![alt text](https://cats.com/wp-content/uploads/2020/10/cool-Snowshoe-cat.jpg)
